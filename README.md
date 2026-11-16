@@ -10,5 +10,5 @@
 - 🤔 I am currently writing a project proposal.
 - 🚣 I have been rowing since July.
 - 📫 How to reach me: ruhanalpaydin@gmail.com
-- 😄 Pronouns: she/her
+
 
